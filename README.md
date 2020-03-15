@@ -1,3 +1,3 @@
 # Samlekom Mamang!
 
-# anjay trimakasih buat lhu semua ngentot
+# anjay trimakasih buat lhu semua :D
